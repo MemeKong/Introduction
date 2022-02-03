@@ -15,7 +15,7 @@ INSTAGRAM: https://www.instagram.com/_memekong/
 
 YOUTUBE: https://www.youtube.com/channel/UCwi5CrlOmuNh7CXl6pLclZQ 
 
-DISCORD: https://discord.gg/mMFrfFQF  (Meme Kong#1911)
+DISCORD: https://discord.gg/mMFrfFQF
 
 REDDIT: https://www.reddit.com/user/MemeKongToken 
 
